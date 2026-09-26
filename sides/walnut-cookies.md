@@ -11,3 +11,4 @@ Chinese Walnut cookies
 
 - make it
 - bake it
+- and then share with my friend at the birthday party!!!
